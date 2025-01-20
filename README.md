@@ -1,2 +1,2 @@
 # mllamas1.github.io
-marissa's website (in progres...)!
+marissa's website (in progress...)!
